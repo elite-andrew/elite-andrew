@@ -2,7 +2,7 @@
 - 👀 I’m interested in Frot-end web design,UI/UX Design and Cybersecurity
 - 🌱 I’m currently learning HTML and CSS
 - 💞️ I’m looking to collaborate on projects requiring the knowlege of Front-end development in web design
-- 📫 How to reach me : Email: einsteinelite05@gmail.com 
+- 📫 How to reach me : Email: andrewsandy055@gmail.com 
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: 
 
